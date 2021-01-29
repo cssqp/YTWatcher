@@ -1,5 +1,5 @@
 # YTWatcher by cssqp 
-YTWatcher Crack by cssqp / Software for earning money on YouTube / Софт по заработку на YouTube
+YTWatcher by cssqp / Software for earning money on YouTube / Софт по заработку на YouTube
 
 greetings!
 First, I would like to say that the software is not a loot button.
